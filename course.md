@@ -1,4 +1,4 @@
-# Semester 2 - Future Work Skills
+# Future Work Skills
 
 
 Sehr geehrte Studierende,
