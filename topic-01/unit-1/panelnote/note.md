@@ -1,0 +1,1 @@
+Die Themen zu "Challenge - Überblick und Einführung" werden in einer Präsenz-Sitzung behandelt. Nähere Infomrationen hierzu erhalten Sie im [ELO-Kurs](https://elearning.oth-regensburg.de).
