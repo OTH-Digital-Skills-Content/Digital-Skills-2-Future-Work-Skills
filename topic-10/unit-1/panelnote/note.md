@@ -1,0 +1,1 @@
+Nähere Informationen zu "Challenge - Pitch Training" erhalten Sie zu gegebener Zeit durch die Kursleitung (siehe auch: "Aufgabenstellung").
