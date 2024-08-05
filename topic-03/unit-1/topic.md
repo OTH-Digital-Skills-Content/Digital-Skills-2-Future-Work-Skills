@@ -1,2 +1,0 @@
-Challenge - Kennenlernen der Mentees
-
