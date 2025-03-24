@@ -1,3 +1,3 @@
-Modern Collaboration Tools - Internet of Things
+Internet of Things
 
-Video zu Modern Collaboration Tools - Internet of Things
+Video Internet of Things
