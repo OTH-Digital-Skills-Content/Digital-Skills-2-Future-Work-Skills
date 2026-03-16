@@ -1,3 +1,3 @@
-Einführung
+Innovation Board
 
-Video zu Einführung
+Video zur Vorstellung des Innovation Boards
